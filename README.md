@@ -1,1 +1,1 @@
-"why is this so difficult to follow"
+"am I getting the hang of this?"
